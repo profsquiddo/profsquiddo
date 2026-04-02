@@ -1,5 +1,5 @@
 <div align="center">
-<img src="https://file.garden/ZyYGiT3zyA44l0Fz/gifs./kookoo.gif" alt="all art by sorjanna on twt." width="35%" />
+<img src="https://file.garden/ZyYGiT3zyA44l0Fz/gifs./averythemayo.gif" alt="all art by sorjanna on twt." width="35%" />
 
 
 [𝒶tabook](https://ssquiddling.atabook.org/) ༝⠀⠀⠀⠀⠀⠀[ꪑain](https://github.com/mega-ambler) ༝
